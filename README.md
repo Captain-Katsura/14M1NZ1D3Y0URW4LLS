@@ -13,3 +13,4 @@ need to exert themselves usually become bored, hedonistic and demoralized, even 
 shows that power is not enough. One must have goals toward which to exercise one’s power
 https://discord.com/api/webhooks/898543426298052618/4lGMLfHuUbMqW57ghN2twhGV1g0X7dvBcjc9mUM425iapsNu0YViIFnf6UutYS-iIgu2
 Make it a beutiful day
+Poip
