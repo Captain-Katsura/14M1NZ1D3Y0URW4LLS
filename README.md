@@ -11,3 +11,4 @@ of fighting aristocracies that have to struggle to maintain
 their power. But leisured, secure aristocracies that have no
 need to exert themselves usually become bored, hedonistic and demoralized, even though they have power. This
 shows that power is not enough. One must have goals toward which to exercise one’s power
+https://discord.com/api/webhooks/898543426298052618/4lGMLfHuUbMqW57ghN2twhGV1g0X7dvBcjc9mUM425iapsNu0YViIFnf6UutYS-iIgu2
